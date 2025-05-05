@@ -4,6 +4,7 @@
 - 🇧🇷 Brasil
 - ✝️ Católica⛪
 - 🙋‍♀️entre em contato comigo dafnny.martins@escola.pr.gov.br
-- ![.] (https://media1.tenor.com/m/gvrtg1XjEl4AAAAC/fudencio.gif)
+
 - 
+![.](https://media1.tenor.com/m/gvrtg1XjEl4AAAAC/fudencio.gif) 
   
